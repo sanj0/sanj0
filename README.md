@@ -7,4 +7,4 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: [email](***REMOVED***.***REMOVED***@gmail.com)
 - 😄 Pronouns: he
-- ⚡ Fun fact: I waste way too much time and money
+- ⚡ Fun fact: I waste way too much time
