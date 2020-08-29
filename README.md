@@ -1,3 +1,4 @@
+![Visitor Count](https : //profile-counter.glitch.me/{edgelord314}/count.svg)
 # Hi there
 - 📫 How to reach me: [email](***REMOVED***.***REMOVED***@gmail.com)
 
