@@ -1,5 +1,2 @@
-[send an email to ***REMOVED***d@duck.com](mailto:***REMOVED***d@duck.com)
-
-[https://buchklub-lipsia.github.io](https://buchklub-lipsia.github.io)
-
-[Blog: Repolit](https://sanj0.github.io/repolit/index.html)
+- [send me an E-Mail](mailto:***REMOVED***.***REMOVED***@gmail.com)
+- [https://buchklub-lipsia.github.io](https://buchklub-lipsia.github.io)
