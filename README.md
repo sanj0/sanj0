@@ -1,2 +1,1 @@
-- [send me an E-Mail](mailto:***REMOVED***.***REMOVED***@gmail.com)
-- [https://buchklub-lipsia.github.io](https://buchklub-lipsia.github.io)
+- [send me an E-Mail](mailto:geotag-caddies8x@icloud.com)
